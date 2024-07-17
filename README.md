@@ -1,3 +1,4 @@
 - [https://x.com/TonyTran225](https://x.com/TonyTran225)
 - [@TonyTran25](https://youtube.com/@TonyTran25)
 - [https://medium.com/@TonyTran25](https://medium.com/@TonyTran25)
+- [Reddit](https://www.reddit.com/user/TonyTran225/)
